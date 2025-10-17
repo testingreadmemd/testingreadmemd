@@ -1,6 +1,6 @@
 ![](https://komarev.com/ghpvc/?username=anthonyscoffin&color=8ca1e0&style=plastic&label=People+expired.+(Views))
 
-hi, im **Anth**ony.ᐟ **it/its** or he/him, 21 ⋆ im a queer disaster obsessed with fandom and music, and an artist/editor of sorts, i make art (traditional/digital, sometimes try animation) and i edit (sprites and video). anyways, i am terrible at introduction so lets just skip to the next section ![stars](https://file.garden/ZNjY5-CbZ0o-GQoj/edebad09.gif)
+hi, im **Anth**ony.ᐟ **it/its** or he/him, 21 ⋆ im a queer disaster obsessed with fandom and music, and an [stars](https://file.garden/ZNjY5-CbZ0o-GQoj/edebad09.gif)
 
 [![flag1](https://file.garden/ZNjY5-CbZ0o-GQoj/transmasculine-7-stripes-20-px.png)](https://lgbtqia.fandom.com/wiki/Transmasculine) [![flag2](https://file.garden/ZNjY5-CbZ0o-GQoj/non-binary-4-stripes-20-px.png)](https://lgbtqia.fandom.com/wiki/Non-binary) [![flag3](https://file.garden/ZNjY5-CbZ0o-GQoj/achillean20x20bcpostimagdiedilldoitMYSELF.png)](https://lgbtqia.fandom.com/wiki/Achillean) [![flag4](https://file.garden/ZNjY5-CbZ0o-GQoj/biromantic-3-stripes-20-px.png)](https://lgbtqia.fandom.com/wiki/Biromantic) [![flag5](https://file.garden/ZNjY5-CbZ0o-GQoj/Unlabeled20x20bcpostimgdiedilldoitMYSELF.png)](https://lgbtqia.fandom.com/wiki/Unlabeled) 
 
